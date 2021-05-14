@@ -1,5 +1,5 @@
 ### my stuffs:
-- Discord: arson#6313
+- Discord: arsonic#5669
 - Telegram: ar50n
 - Youtube: https://youtube.com/arsonx
 </a>
